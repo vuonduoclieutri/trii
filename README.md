@@ -1,5 +1,7 @@
 Những cây thuốc nam hỗ trợ điều trị bệnh trĩ tại nhà
 
++++ Quả sung là loại quả rất tốt dành cho người bị bệnh trĩ. Nhờ tác dụng làm mềm phân giúp giảm áp lực lên thành hậu môn và tĩnh mạch trực tràng. Ngoài ra, khả năng chống oxy hóa giúp giảm các triệu chứng do viêm gây ra như: sưng, nóng, đau, xa bùi trĩ,...
+
 1. Rau diếp cá
 Rau diếp cá rất phổ biến trong bữa ăn của người Việt Nam. Bên cạnh đó, đây còn là một loại dược liệu tính hàn giúp thải độc, mát gan, sát khuẩn vết thương và dùng chữa viêm loét rất tốt. Những thành phần hóa thực vật trong cây diếp cá giúp hỗ trợ điều trị bệnh trĩ gồm có:
 Quercetin – Một alkaloid có hoạt tính chống oxy hóa, giúp hạn chế tình trạng phình tĩnh mạch hậu môn.
